@@ -1,1 +1,0 @@
-# Ingenier-a-de-Soluciones-con-Inteligencia-Artificial-Ev2
